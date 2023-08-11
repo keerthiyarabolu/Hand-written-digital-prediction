@@ -1,1 +1,0 @@
-# Hand-written-digital-prediction
